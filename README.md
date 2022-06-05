@@ -1,1 +1,0 @@
-# EvdokimovaYV-QA
